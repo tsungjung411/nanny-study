@@ -10,7 +10,7 @@ And this is Daddy Pig.
 (V.O.: Voice Over 旁白)
 
 ## Pancakes!
-It is teatime.
+It is tea time.
 
 V.O.: And Mummy Pig has a surprise for everyone.
 
