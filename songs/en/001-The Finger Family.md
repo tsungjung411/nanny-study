@@ -1,34 +1,80 @@
-[[Youtube] Finger Family | CoComelon Nursery Rhymes & Kids Songs](https://www.youtube.com/watch?v=kCka94jeGTk)
 
 The Finger Family
 手指家庭
 
 Daddy finger, daddy finger, where are you?
-爸爸手指，爸爸手指，你在哪裡?
+<br>手指爸爸，手指爸爸，你在哪?
 
 Here I am, here I am. How do you do?
-我在這裡，我在這裡，你好嗎?
+<br>我在這，我在這，你好啊！
 
-Mommy finger, Mommy finger, where are you?
-媽媽手指，媽媽手指，你在哪裡?
+Daddy finger, daddy finger, what do you do?
+<br>手指爸爸，手指爸爸，你在幹什麼?
+
+Play guitar, play guitar, that's what I do.
+<br>彈吉他，彈吉他，我在彈吉他。
+<br>（彈吉他，彈吉他，這就是我所做的。）
+
+<br>
+
+Mommy finger, mommy finger, where are you?
+<br>手指媽媽，手指媽媽，你在哪?
 
 Here I am, here I am. How do you do?
-我在這裡，我在這裡，你好嗎?
+<br>我在這，我在這，你好啊！
+
+Mommy finger, mommy finger, what do you do?
+<br>手指媽媽，手指媽媽，你在幹什麼?
+
+Exercise, exercise, that's what I do.
+<br>做運動，做運動，我在做運動。
+<br>（做運動，做運動，這就是我所做的。）
+
+<br>
 
 Brother finger, Brother finger, where are you?
-哥哥手指，哥哥手指，你在哪裡?
+<br>手指哥哥，手指哥哥，你在哪?
 
 Here I am, here I am. How do you do?
-我在這裡，我在這裡，你好嗎?
+<br>我在這，我在這，你好啊！
 
-Sister finger, Sister finger, where are you?
-姐姐手指，姐姐手指，你在哪裡?
+Brother finger, brother finger, what do you do?
+<br>手指哥哥，手指哥哥，你在幹什麼?
+
+Building things, building things, that's what I do.
+<br>造玩具，造玩具，我在造玩具。
+<br>（建造東西，建造東西，這就是我所做的。）
+
+<br>
+
+Sister finger, sister finger, where are you?
+<br>手指姐姐，手指姐姐，你在哪?
 
 Here I am, here I am. How do you do?
-我在這裡，我在這裡，你好嗎?
+<br>我在這，我在這，你好啊！
 
-Baby finger, Baby finger, where are you?
-寶寶手指，寶寶手指，你在哪裡?
+Sister finger, sister finger, what do you do?
+<br>手指姐姐，手指姐姐，你在幹什麼?
+
+Draw and paint, draw and paint, that's what I do.
+<br>塗鴉畫畫，塗鴉畫畫，我在塗鴉畫畫。
+<br>（塗鴉畫畫，塗鴉畫畫，這就是我所做的。）
+
+<br>
+
+Baby finger, baby finger, where are you?
+<br>手指寶寶，手指寶寶，你在哪?
 
 Here I am, here I am. How do you do? 
-我在這裡，我在這裡，妳好嗎?
+<br>我在這，我在這，你好啊！
+
+Baby finger, baby finger, what do you do?
+<br>手指寶寶，手指寶寶，你在幹什麼?
+
+Play wih friends, play wih friends, that's what I do.
+<br>玩遊戲，玩遊戲，我在玩遊戲。
+<br>（和朋友玩，和朋友玩，這就是我所做的。）
+
+## 參考資料
+- [[Youtube] Finger Family | CoComelon Nursery Rhymes & Kids Songs](https://www.youtube.com/watch?v=kCka94jeGTk)
+- [[Youtube] 手指一家人 | 儿童学习 | 儿歌童谣 | 英文ABC和123 | CoComelon 中文版](https://www.youtube.com/watch?v=ruL-vRTW9Z4)
