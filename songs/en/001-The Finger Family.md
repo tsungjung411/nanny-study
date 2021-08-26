@@ -76,5 +76,5 @@ Play wih friends, play wih friends, that's what I do.
 <br>（和朋友玩，和朋友玩，這就是我所做的。）
 
 ## 參考資料
-- [[Youtube] Finger Family | CoComelon Nursery Rhymes & Kids Songs](https://www.youtube.com/watch?v=kCka94jeGTk)
-- [[Youtube] 手指一家人 | 儿童学习 | 儿歌童谣 | 英文ABC和123 | CoComelon 中文版](https://www.youtube.com/watch?v=ruL-vRTW9Z4)
+- [[Youtube][CoComelon] Finger Family | CoComelon Nursery Rhymes & Kids Songs](https://www.youtube.com/watch?v=kCka94jeGTk)
+- [[Youtube][CoComelon 中文版] 手指一家人 | 儿童学习 | 儿歌童谣 | 英文ABC和123 | CoComelon 中文版](https://www.youtube.com/watch?v=ruL-vRTW9Z4)
