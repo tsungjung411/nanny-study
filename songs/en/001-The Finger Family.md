@@ -78,3 +78,4 @@ Play wih friends, play wih friends, that's what I do.
 ## 參考資料
 - [[Youtube][CoComelon] Finger Family | CoComelon Nursery Rhymes & Kids Songs](https://www.youtube.com/watch?v=kCka94jeGTk)
 - [[Youtube][CoComelon 中文版] 手指一家人 | 儿童学习 | 儿歌童谣 | 英文ABC和123 | CoComelon 中文版](https://www.youtube.com/watch?v=ruL-vRTW9Z4)
+- [[Youtube]【中英日文兒歌】🎵ゆびさんかぞく The Finger Family　手指家族｜親子律動｜防疫在家跟小孩一起玩](https://www.youtube.com/watch?v=47XAvwenZic)
